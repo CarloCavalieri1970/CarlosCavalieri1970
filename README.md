@@ -7,5 +7,5 @@ Meu Nome é Luiz Carlos Cavalieri
   
   ### contato 📧
   professorcavalieri@gmail.com
-
-![](https://tenor.com/pt-BR/view/contact-me-email-me-text-me-send-a-letter-communicate-gif-25501467)
+  
+![](https://tenor.com/pt-BR/view/mail-download-send-letter-email-gif-12348454)
